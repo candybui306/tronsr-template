@@ -1,1 +1,2 @@
-Welcome to tronvietnam
+Welcome to tronvietnam !
+Chào mừng đến TRONVIETNAM !
